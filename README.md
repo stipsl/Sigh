@@ -16,3 +16,8 @@ Another thing I don't understand is why you refused to dm my partner about the f
 It's really funny to me that you weren't even shown the entire chat between my partner and his ex friend... Where they literally agreed it's weird you talk to kids and that they hate endo systems. Doesn't that seem odd to you? You're quick to jump to conclusions it's actually insane.
 
 You unfriended my partner "out of nowhere", when you could've talked to him about what bothered you.
+
+Anyways!! Here's the full screenshots :P
+
+<img src=https://files.catbox.moe/ne648y.jpg>
+<img src=https://files.catbox.moe/7a55c5.jpg>
