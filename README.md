@@ -23,4 +23,4 @@ Anyways!! Here are the full screenshots :P
 <img src=https://files.catbox.moe/7a55c5.jpg>
 
 
-You either agree to disagree by the way, there's no such thing as "feeling bad" !! That's just a simple excuse to get out of blame.
+You either agree or disagree by the way, there's no such thing as "feeling bad" !! That's just a simple excuse to get out of blame.
